@@ -3,7 +3,7 @@
 优先发送给各自小区的联系人： 
 1. 泗水 sishui2021@163.com
 2. 九号 tuangoushouqian@163.com
-3. 融创
+3. 融创 tuangoushouqian@163.com
 4. 万业
 5. 金地
 6. 陈家小区
