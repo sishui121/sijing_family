@@ -6,7 +6,7 @@
 3. 融创 tuangoushouqian@163.com
 4. 万业
 5. 金地
-6. 陈家小区
+6. 陈家小区 tuangoushouqian@163.com
 
 
 暂没有小区名称或者小区联系方式的，可以发送至泗水邮箱：sishui2021@163.com
